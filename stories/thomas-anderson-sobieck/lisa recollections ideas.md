@@ -1,4 +1,12 @@
+lisas shows 
+monk 
+psych
+new girl
+we watched death in paradise together the last period where she was able to look at the tv 
+mike and molly to get to sleep for years when she was in the room
 
+
+ 
 Happiest moments:
 Came out of the room second time - on valentines day
 IHOP
