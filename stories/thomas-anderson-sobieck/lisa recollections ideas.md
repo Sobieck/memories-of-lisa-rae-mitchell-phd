@@ -38,8 +38,9 @@ Find that playlist lisa put together, explain - HAPPY
 
 just detail how i made her food. smoker in garage to bake, deli slicer, all fresh stuff, etc 
 
+going to chris mcds when we were living at the katy place. Lisa loving her bike. Going to schnucks
 
-
+Murray sleeping on her with his little nose next to her chin
 
 
 
