@@ -28,7 +28,7 @@ Very proud of what I did for her
 
 Find that playlist lisa put together, explain - HAPPY
 
-
+just detail how i made her food. smoker in garage to bake, deli slicer, all fresh stuff, etc 
 
 
 
