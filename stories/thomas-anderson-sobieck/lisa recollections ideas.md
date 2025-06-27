@@ -8,13 +8,12 @@ mike and molly to get to sleep for years when she was in the room
 
  
 Happiest moments:
-Came out of the room second time - on valentines day
-IHOP
+
 Tea parties
 Collecting tea stuff, after room the first time
-While I was working at my last job I remember telling people about how amazing it was to see lisa so happy. She was sitting on her swinging porch with the dog. She did this all day when the weather was nice
-We'd have tea parties every morning before I went to work. Just a fancy table cloth, some of her beautiful collection of tea stuff, and some black tea. For a while there we were also reading the stoics. 
 Meeting her at Top 10 Wines. Then when we became a thing. 
+
+collecting knick nacks with her at Tuesday Morning and Pier One. We'd go out all the time with Gidget to buy decor and whatnot. 
 
 First retired
     Working on book, table in the sun room - find book
@@ -47,6 +46,8 @@ DOCTOR HORROR STORIES
 First christmas away from family because she was sick. Eating dove chocolates and just spending all day in the sunny room bed. Dove chocolates to go look at lights with Zoe dog. Just the two of us with no stress whatsoever.
 
 Look from LisaFood repo to find little things to illustrate her life at the end. Menu, caregiver instructions, and the like.
+
+She just kept losing things she loved. Work, laying down during the days, travel, being able to watch tv, be outside, coffee, tea, being able to relax, cook, get me fruit, cleaning, mowing the lawn, gardening, etc etc. Until her life was very small
 
 
 VARIOUS THINGS I WROTE IN THE COUPLE DAYS AFTER LISA KILLED HERSELF
