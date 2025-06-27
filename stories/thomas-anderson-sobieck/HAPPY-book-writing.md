@@ -1,0 +1,3 @@
+Lisa wanted to write a book about what it was like to go from being a person trying to help people to being the person being cared for. So she started to do that. The draft of that is in "lisas documents" folder of this project. I haven't actually read it. 
+
+But we moved a table in the sun room and I set her up with monitors and the like. She loved working in there because we had all of our plants and it was very bright and she had a beautiful view of the valley out our backyard. She'd drink her tea or coffee and work on that while I was at work. Apparently Gidget dog would be on her lap at all times, she'd even carry Gidget to the bathroom with her. This is when Gidget was just a wee pup, I think we only had Gidget for like 5 months before things went to shit.  
