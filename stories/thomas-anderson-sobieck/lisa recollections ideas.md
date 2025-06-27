@@ -106,13 +106,7 @@ I’m probably still going to be a bit antsy about going inside without a mask i
 
 
 
-Thomas Anderson Sobieck
-From: Thomas Anderson Sobieck <Thomas@Sobieck.com>
-Sent: Wednesday, June 25, 2025 1:06:37 PM
-To: Thomas Anderson Sobieck <Thomas@Sobieck.com>
-Subject: Re: Lisa end notes
- 
-Hi All. I forgot that a lot of people might want to send flowers. I really appreciate the thought, and if you've already sent them that is great. But I think I'd prefer it if you sent donations in Lisa's name to causes that she held dear to her heart. The first is helping with animals. We got all of our animals from the Central Missouri Humane Society. https://cmhspets.org/ The next is ComoMobileAid.org. They help get resources to homeless folk, and they even help with pets. The third is borderkindness.org. They help keep refugees safe on the border of the US. And, finally, thetrevorproject.org. They run a crisis line for lbgtq+ people.
+
 
 Thomas Anderson Sobieck
 From: Thomas Anderson Sobieck <Thomas@Sobieck.com>
@@ -186,34 +180,10 @@ Subject: Re: Lisa end notes
  
 Lisa would get super annoyed if I kissed the dog and made kissy noises at her. She’d huff anytime I did it without thinking 
 
-Thomas Anderson Sobieck
-From: Thomas Anderson Sobieck <Thomas@Sobieck.com>
-Sent: Tuesday, June 24, 2025 5:38:04 PM
-To: Thomas Anderson Sobieck <Thomas@Sobieck.com>
-Subject: Lisa end notes
- 
 
-The really fucked up thing about this is that I think having her parents here was kind of changing her outlook on life a bit. She had me decorate the house for spring and that brought her a lot of joy. She'd also having me show her one of her tea cups every day and it made her so happy. She told her mom it was remarkable that she could feel something other than pain. 
 
-Call me when you are up to it. It is probably good that you can't talk today. I've been on the phone nonstop and I'm very tired. 
 
-I think Lisa's defining feature was kindness and a fierceness of spirit (or something). She was such an amazing person. She was amazingly kind person but she was very bullheaded. She was had a backbone and a strong sense of right and wrong. You couldn't force her to do anything. 
 
-I actually can't recall her face. My brain doesn't think in images and I can't do it.
-
-I didn't worry about suicide for the past few years. She reassured me so much that she would never do it because she was so afraid. I would voice my worried about it to her and she said she'd never do it. She's been very very stressed from seeing a new doctor and I think she lost touch with reality. Over the past couple days she convinced herself, when she was alone at night that I would die if I touched the things she was sleeping on and using. I last talked to her last night at midnight she was telling me this. Much to my shame I actually yelled at her because I'm at my wits end and told her that there was no mechanism for that. That the danger for me is exhaustion so I needed sleep.  I went back into the room very shortly after and apologized and gave her a hug for the first time in years. I told her I'd be here for her forever and that she really didn't need to worry about me. That she just needed rest and this would go away. This wasn't the first time something like this happened so I just thought it would go away. I guess what was different is that she was concerned about me and the pup instead of herself. I think she did it to protect us. 
-
-And things were relatively good. This is something I wrote to another friend:
-
-"The really fucked up thing about this is that I think having her parents here was kind of changing her outlook on life a bit. She had me decorate the house for spring and that brought her a lot of joy. She'd also having me show her one of her tea cups every day and it made her so happy. She told her mom it was remarkable that she could feel something other than pain."
-
-And she was seeing a doctor who thought she knew what was going on. The doctor was taking tons of time with her, so I had hope for the first time in years. 
-
-Anyways, I need to go walk the dog or something. 
-
-Thank you for your letter. Lisa absolutely loved you and would always talk in the most glowing terms about you. I'm pretty sure you were her favorite person other than me and maybe her parents. Thank you for being in her life. I'm so sorry you didn't get to see her or talk to her these past few years. 
-
-Thomas Anderson Sobieck
 
 Thank you! I love you lots. And don’t worry about me. I’ve been through a lot and will get through this. I’m just going miss her so much. We were two peas in a pod. 
 
