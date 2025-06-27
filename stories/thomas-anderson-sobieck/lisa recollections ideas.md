@@ -49,6 +49,35 @@ Look from LisaFood repo to find little things to illustrate her life at the end.
 
 She just kept losing things she loved. Work, laying down during the days, travel, being able to watch tv, be outside, coffee, tea, being able to relax, cook, get me fruit, cleaning, mowing the lawn, gardening, etc etc. Until her life was very small
 
+sounds were bad. People outside couldn't use loud tools in our yard, at the end we had seeding grass out in the back yard because we didn't get it mowed for a couple years. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 VARIOUS THINGS I WROTE IN THE COUPLE DAYS AFTER LISA KILLED HERSELF
 
