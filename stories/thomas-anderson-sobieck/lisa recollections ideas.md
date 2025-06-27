@@ -76,6 +76,11 @@ Baked dinner
 
 Christmas cookies Lisa give away
 
+ginger balls murrey
+
+lisa's flight of the concord story that we bonded over with the doctor on a date
+
+
 
 
 
