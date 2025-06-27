@@ -37,6 +37,10 @@ just detail how i made her food. smoker in garage to bake, deli slicer, all fres
 
 going to chris mcds when we were living at the katy place. Lisa loving her bike. Going to schnucks
 
+THE BEAVER
+
+losing my shoes and glasses on our honeymoon 
+
 Murray sleeping on her with his little nose next to her chin
 
 DOCTOR HORROR STORIES
@@ -50,21 +54,21 @@ She just kept losing things she loved. Work, laying down during the days, travel
 sounds were bad. People outside couldn't use loud tools in our yard, at the end we had seeding grass out in the back yard because we didn't get it mowed for a couple years. 
 
 
+Lisa not wanting me to have close friends with women
 
+Mary Claire’s house. Terrified about Lisa’s prognosis long before Lisa retired
 
+Explain the cooking situation
 
+Watching psych and getting craving for donuts, I got her some, then tacos, got her some
 
+Also loved to eat peanut butter on a spoon
 
+Fucking loved butter Vegemite
 
+Baked dinner
 
-
-
-
-
-
-
-
-
+Christmas cookies Lisa give away
 
 
 
