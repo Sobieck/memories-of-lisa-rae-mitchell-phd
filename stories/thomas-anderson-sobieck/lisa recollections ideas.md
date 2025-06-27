@@ -42,7 +42,11 @@ going to chris mcds when we were living at the katy place. Lisa loving her bike.
 
 Murray sleeping on her with his little nose next to her chin
 
+DOCTOR HORROR STORIES
 
+First christmas away from family because she was sick. Eating dove chocolates and just spending all day in the sunny room bed. Dove chocolates to go look at lights with Zoe dog. Just the two of us with no stress whatsoever.
+
+Look from LisaFood repo to find little things to illustrate her life at the end. Menu, caregiver instructions, and the like.
 
 
 VARIOUS THINGS I WROTE IN THE COUPLE DAYS AFTER LISA KILLED HERSELF
