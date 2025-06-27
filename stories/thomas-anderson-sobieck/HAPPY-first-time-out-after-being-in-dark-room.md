@@ -1,6 +1,6 @@
 One thing that going through trauma with someone is that coming out the other end is extraordinary. 
 
-Lisa spent a long time in a dark room. She came out of it on valentines day and we opened christmas presents that day and it was so much fun. It was just so much fun to see her enjoying herself after spending endless months in the dark. 
+Lisa spent a long time in a dark room. She came out of it on valentines day and we opened christmas presents that day and it was so much fun. It was just so much fun to see her enjoying herself after spending endless months in the dark. I think she was in the dark for a year and a half that time.  
 
 But the best meal I've ever had was IHOP. It was our first outing since her stay in the dark. We went to IHOP. I think she got pancakes and I got chicken and waffles. But I don't think anything will ever taste as fine as that shitty food. I was just so happy to be there with her and seeing her enjoy herself. We both just grew to appreciate the little things. 
 
