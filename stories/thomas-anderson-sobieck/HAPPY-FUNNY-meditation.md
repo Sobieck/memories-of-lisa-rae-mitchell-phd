@@ -1,0 +1,7 @@
+After Lisa got out of the room the second time she was trying to meditate regularly. And she wanted us to go to the meditation center here in town together some Sunday. So we made a deal, if she meditated for x weeks every day then I would go with her to meditate. And she was able to do this!
+
+So she got dressed up and I went as a slob to the little chapel and it was lovely... before the meditation started. Very calm atmosphere, like a secular church. Then they started with the guided meditation and it was fine, for a few seconds and then the final boss of meditation showed himself. It was this guy that breathed SOOOO loud. Like he was drowning just coming up for air, with every breath. We didn't look at each other for like a couple minutes, but then we started to look at each other more and more frequently, and eventually Lisa just grabbed my hand and we left early. 
+
+She couldn't stand the sounds of people eating or things like that. So I'm sure someone breathing super super loud while she was trying to meditate was just too much for her. 
+
+We'd always talk about that guy. We joked about how there could be a world cup of meditation with like Pema Chodron and the like there to see if they could successfully meditate while he was with them. The funny thing about all this is that Pema specifically calls out that there is never a failure when you are trying to work on meditation. Making the effort what matters. 
