@@ -1,0 +1,5 @@
+After Lisa got out of the dark room, she needed a new wardrobe because her body had changed so much because her lifestyle changed so much. She was very distraught about losing her old cloths because she loved her things so much. I'd always tell her when she was distraught about this that we'd buy her a ton of new cloths and say it'd be like in Pretty Woman.
+
+So we went to White House Black Market. I had Gidget in my arms the whole time as she ran around the store and trying on basically everything. We were there for a couple hours and I'm pretty sure we made multiple trips and went other places as well. But I just remember her chasing all around the store with me and Gidget looking at basically everything. And then she modeled everything for Gidget dog and me. 
+
+We spent a ton of money but she was so so so happy when she was doing it. I miss her so much.

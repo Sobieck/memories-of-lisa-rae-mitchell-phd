@@ -2,7 +2,11 @@ Wanting kids, that whole thing
 
 went to witchita
 
+going to JC for derm, going to homegoods 
+
 10-01-10!
+
+just wanting to lay on the couch or in bed and watch tv sad
 
 went to stl, tea party, euphoria at first treatment
 
