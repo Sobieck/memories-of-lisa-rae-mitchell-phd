@@ -1,5 +1,4 @@
-﻿Evaluation Warning : The document was created with Spire.Doc for .NET.
-INTRODUCTION
+﻿INTRODUCTION
 My illusion of control develops a crack 
 Those of us who live in the wealthy Western world tend to live under the assumption that we are securely in control of most of what happens in our lives. We expect to be paid fairly for hard work. We expect to be happy. We expect to be healthy. We get in the car in the morning to drive to work and assume we will get their safely. We assume that our car will not get a flat tire and we become incensed when it does. We expect things to go right. 
 After six grueling years in training to become a psychologist and six years working successfully as one, I expected that I would continue doing so for some time. I did not expect to lose my physical health in middle age. But I did.
