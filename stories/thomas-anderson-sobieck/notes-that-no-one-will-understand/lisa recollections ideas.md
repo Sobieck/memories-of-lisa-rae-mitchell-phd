@@ -92,6 +92,7 @@ lisa singing off key
 
 Playing boggle every weekend. She rocked me at first, but I eventually started to beat her more consistently. Even when she was "healthy" we still had all sorts of habits.
 
+gidget taking off lisas socks and killing them every night
 
 
 
