@@ -1,12 +1,21 @@
 # memories-of-lisa-rae-mitchell-phd
-A place to share memories of Lisa Rae Mitchell
+A place to share memories of Lisa Rae Mitchell. Make a pull request or send contributions to Contribute@LisaMitchell.org
 
-Hi All. I forgot that a lot of people might want to send flowers. I really appreciate the thought, and if you've already sent them that is great. But I think I'd prefer it if you sent donations in Lisa's name to causes that she held dear to her heart. 
+## Obit
 
-The first is helping with animals. We got all of our animals from the Central Missouri Humane Society. https://cmhspets.org/ 
+Lisa Rae Mitchell passed on June 24, 2025 at her home in Columbia, MO. She is survived by her husband, Thomas Anderson Sobieck and her parents Ray and Robyn Mitchell. Lisa will also be missed by the Sobieck family.
 
-The next is ComoMobileAid.org. They help get resources to homeless folk, and they even help with pets. 
+Born in Perth, Australia in September of 1974, Lisa earned three degrees: a Bachelor of Arts in Social Work, a Master of Arts in Religious Studies, and a PhD in Clinical Psychology.  Lisa was a very kind, gentle, and empathetic woman who counseled many veterans at the Harry S. Truman Memorial Veterans’ Hospital in Columbia, MO. 
+ 
+Lisa will be remembered for her beautiful tea parties she hosted for friends and family. Animals, nature, and the unfortunate were dear to her heart. 
 
-The third is borderkindness.org. They help keep refugees safe on the border of the US. 
+In lieu of flowers her family requests:
 
-And, finally, thetrevorproject.org. They run a crisis line for lbgtq+ people.
+Central Missouri Humane Society - cmhspets.org 
+Como Mobile Aid – ComoMobileAid.org 
+Border Kindness – borderkindess.org 
+The Trevor Project – thetrevorproject.org 
+ 
+Remembrance services are pending. If you are interested in attending, please send an email to party@LisaMitchell.org  
+ 
+Her husband is archiving digital materials related to Lisa at https://tinyurl.com/memories-of-lisa-mitchell. If you wish to contribute photos, stories, videos, audio, or anything please send the files to contribute@LisaMitchell.org 
