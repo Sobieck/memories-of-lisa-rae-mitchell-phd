@@ -82,8 +82,9 @@ ginger balls murrey
 
 lisa's flight of the concord story that we bonded over with the doctor on a date
 
+lisa singing off key
 
-
+Playing boggle every weekend. She rocked me at first, but I eventually started to beat her more consistently. Even when she was "healthy" we still had all sorts of habits.
 
 
 
