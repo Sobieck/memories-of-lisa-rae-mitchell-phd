@@ -2,6 +2,8 @@ Wanting kids, that whole thing
 
 went to witchita
 
+10-01-10!
+
 went to stl, tea party, euphoria at first treatment
 
 went to fl. lisa just soendint tons ofntime on the beach while inworked in the condo. making me fish sammies. going to publix to get all the sweets 
