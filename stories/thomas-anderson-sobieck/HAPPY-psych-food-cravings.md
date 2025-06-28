@@ -1,0 +1,5 @@
+When Lisa was retired she was sick, but she could function and enjoy life if she had enough rest. So she spent a lot of time in bed watching TV. One of her favorite show was Psyche and it has a lot of bits about food. So when she was watching it she would get cravings. I think her only dietary restriction at this point was no alcohol.
+
+So one day she got a craving for donuts because the characters were talking glowingly of them. So she asked me to run to the store to get her some. I went up to Gerbes and bought an assorted dozen and brought them back to her and she ate them in bed while watching tv. She ate a little bit of each of them without finishing and was super happy about it. 
+
+She kept on watching Psych in her bed in the master bedroom for the rest of the day. And eventually she got to the taco truck episode and got a wild craving just for taco bell. So I jumped in the car and got her her taco bell which she enjoyed in bed. She loved taco bell, growing up vegetarian their bean burritos were one of the few fast food items she could eat. And they were cheap so she ate a lot of them in grad school.  

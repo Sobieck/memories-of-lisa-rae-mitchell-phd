@@ -23,6 +23,8 @@ Meeting her at Top 10 Wines. Then when we became a thing.
 
 collecting knick nacks with her at Tuesday Morning and Pier One. We'd go out all the time with Gidget to buy decor and whatnot. 
 
+One day when she was feeling bad, return cloths, stop by pier one and bought her nicknacks 
+
 First retired
     Working on book, table in the sun room - find book
     Laying in bed watching tv all day, south facing room, sun streaming in, Zoe on the bed
@@ -46,8 +48,6 @@ Find that playlist lisa put together, explain - HAPPY
 just detail how i made her food. smoker in garage to bake, deli slicer, all fresh stuff, etc 
 
 going to chris mcds when we were living at the katy place. Lisa loving her bike. Going to schnucks
-
-THE BEAVER
 
 losing my shoes and glasses on our honeymoon 
 
