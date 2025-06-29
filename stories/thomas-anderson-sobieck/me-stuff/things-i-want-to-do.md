@@ -18,13 +18,17 @@ play msft flight simulator and get ray playing it
 
 Bike trip to chicago
     Swim in Lake Michigan
-    Eat at Alenia... well pretty much all the michelin starred restaurants in chicago eventually.
+    
     Go to the aquarium
 
-Take a train trip somewhere
+Take a train trip somewhere, maybe to the mountains. Cabin up there
 
 Go live with Uthayla for a while
 
 ## Move 
 
 Move to Chicago
+    
+    Eat at Alenia... well pretty much all the michelin starred restaurants in chicago eventually.
+
+    Learn to sail
