@@ -1,0 +1,5 @@
+THe first year I was working at my remote job we got an enormous snowstorm. It dropped a lot of heavy wet snow on us. Lisa was good enough back then that she was was able to play in the snow! I really can't believe because at the end of her life she would fear snowstorms. As soon as it got cold she would be worried all the time about snow. 
+
+So we went outside and jumped into the snow and made snow angels. I'm pretty sure this was during the work day. But we made snow angels and it was the perfect snow for a snowman so we made a snow man. For the arms I dragged enormous branches that fell off our pine trees. It looked like it had wings. 
+
+Some of Gidget's defining characteristics is that she hates cold, wet, and her people being in danger. To her little dog brain us having fun in the snow laughing and carrying on was obviously a sign that we were in big trouble, we need her to protect us. So she jumped off the dry area of our porch into the big snow drift. She basically disappeared but she did successfully rescue us from the snow menace since we had to rescue her. 
