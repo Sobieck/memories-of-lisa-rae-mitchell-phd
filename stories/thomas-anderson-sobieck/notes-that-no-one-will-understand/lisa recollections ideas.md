@@ -6,6 +6,10 @@ Walking to queens park in the fucking heat in melbourne. She was in the wrong sh
 
 lisa loved her job being a social worker. She would have liked to do that for the rest of her life but it paid so little. She was a fierce advocate for her clients. The horny dude. Getting ramps put in. Her bullheadedness really was good. She drove all over the place around Ukiah CA blaring her favorite music. Basically the job was bullying people to help people in need, and drive long distances. She love it. 
 
+Pity party WP_000511.jpg
+
+Travel to south carolina and georgia, trying to taper Paxil. Was sick as a dog a lot of the time.
+
 pooped herself
 
 went to witchita
@@ -15,7 +19,7 @@ going to JC for derm, going to homegoods
 10-01-10!
 
 just wanting to lay on the couch or in bed and watch tv sad
-
+g
 went to stl, tea party, euphoria at first treatment
 
 went to fl. lisa just soendint tons ofntime on the beach while inworked in the condo. making me fish sammies. going to publix to get all the sweets 
