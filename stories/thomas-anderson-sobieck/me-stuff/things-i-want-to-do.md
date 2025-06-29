@@ -12,6 +12,8 @@ Go out to the winery with the pup. Have a glass of wine. Bike there!!
 
 Play baldurs gate
 
+play msft flight simulator and get ray playing it
+
 ## Travel
 
 Bike trip to chicago
@@ -22,3 +24,7 @@ Bike trip to chicago
 Take a train trip somewhere
 
 Go live with Uthayla for a while
+
+## Move 
+
+Move to Chicago

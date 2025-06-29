@@ -1,0 +1,5 @@
+We flew out to Aus on Christmas eve for our honeymoon. The boarding crew learned we were on our honeymoon some how and upgraded us to business class. The flight from LA to Melbourne was empty. We were offered champagne when we got on the plane, and normally I would jump on that offer. I loved champagne. But we both decided we were going to sleep on that flight. So Lisa gave me one of her ambiens (the only time I've ever taken an Rx that wasn't mine) and we both blissfully slept for a lot of that long ass flight. I was nice because I normally don't sleep on planes at all. 
+
+We went to our Hotel which was on the beach. The very first thing we did was go out and sit on the beach in a fucking jet lagged daze. It was awful. But then we got a nice meal. Melbourne was great. I remember one pizza place were I ate pizza with Lisa and then decided I was going to eat a dozen oysters. 
+
+WIP

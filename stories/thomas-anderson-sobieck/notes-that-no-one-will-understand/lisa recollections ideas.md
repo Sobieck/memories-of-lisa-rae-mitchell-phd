@@ -4,6 +4,7 @@ Going to Black southern food place, honey ice cream that she stole
 
 Walking to queens park in the fucking heat in melbourne. She was in the wrong shoes for it :(. The aquarium in Melbourne. Eating at various place Tony Bourdain went. A lot of them were closed because of the holidays (Christmas and NY). 
 
+lisa loved her job being a social worker. She would have liked to do that for the rest of her life but it paid so little. She was a fierce advocate for her clients. The horny dude. Getting ramps put in. Her bullheadedness really was good. She drove all over the place around Ukiah CA blaring her favorite music. Basically the job was bullying people to help people in need, and drive long distances. She love it. 
 
 pooped herself
 
@@ -73,7 +74,6 @@ Look from LisaFood repo to find little things to illustrate her life at the end.
 She just kept losing things she loved. Work, laying down during the days, travel, being able to watch tv, be outside, coffee, tea, being able to relax, cook, get me fruit, cleaning, mowing the lawn, gardening, etc etc. Until her life was very small
 
 sounds were bad. People outside couldn't use loud tools in our yard, at the end we had seeding grass out in the back yard because we didn't get it mowed for a couple years. 
-
 
 Lisa not wanting me to have close friends with women
 
