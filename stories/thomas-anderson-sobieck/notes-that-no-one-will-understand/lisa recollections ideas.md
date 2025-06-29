@@ -1,4 +1,11 @@
-Wanting kids, that whole thing
+Going to fly over, she was in a jump suit that I bought her. I met her after work and the food was lovely and it was a fun night.
+
+Going to Black southern food place, honey ice cream that she stole
+
+Walking to queens park in the fucking heat in melbourne. She was in the wrong shoes for it :(. The aquarium in Melbourne. Eating at various place Tony Bourdain went. A lot of them were closed because of the holidays (Christmas and NY). 
+
+
+pooped herself
 
 went to witchita
 

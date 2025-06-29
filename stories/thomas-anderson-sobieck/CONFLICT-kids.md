@@ -1,0 +1,11 @@
+Arguing about having kids many days. I remember her being on the floor in the living room. I didn’t want kids at all and she was indifferent when we got married. 
+
+Lisa saw how wonderful my sisters lives with kids were and wanted that. She was sick of her job at that point. Before we got married we’d agreed we wouldn’t be having kids and seeing other people’s kids tended to make me want them even less. But I feel like she also felt social pressure at that point as well. She thought like it was the thing she should do, she graduated, she got a job, landed a real prize of a man, got a house, so kids were next. She also just really wanted to have the joy of having children.
+
+This was one of the few times where we argued a lot in our marriage. I felt very upset about it because if we weren’t compatible in this way we shouldn’t have married. But it basically boiled down to have kids or get divorced. And I loved her enough that I said fine. She was also incredibly bull headed (I’m also very bull headed). 
+
+I guess that was the first time that I knew I’d do anything for her because I profoundly didn’t want kids. I thought it was throwing in a variable that would blow up in our faces when we were so fucking happy together. And I think I had a better read of the situation than she did even after all these years. We were two people that just loved being near each other in our quiet environment, even before she was sick. Sharing meals, and laughs, and all that. Very little conflict. She could follow her interests and I could follow mine. If you needed us for the first years of our relationship you could probably find us in bed doing what normal couples do (one person reading quietly and the other person watching tv quietly with a dog or cat laying between them) or what couple tend to do on couches (one person reading quietly and the other person watching tv quietly with a dog or cat laying between them). 
+
+Her illness showed itself and then she decided that kids weren’t actually a good idea a think maybe a half year or so after I agreed to try to have kids. 
+
+And just thank god she never got pregnant because having a kid while she went through her stuff would have been a nightmare. It was very hard to just adjust with the dog.

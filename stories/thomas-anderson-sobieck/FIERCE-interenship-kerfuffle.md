@@ -1,0 +1,7 @@
+In psychology there is a draft like system to getting internships. Everyone interviews and the like, then the institutions all give offers at the same time. The people wanting internships choose where they want to go. 
+
+So Lisa was really fucking good at putting on a performance and I'm sure she interviewed well. And she was very smart and all that. So an institution offered her a job before they were supposed to. I think it was a good place but not like the top tier that she wanted. They pressured her to accept right away. So she did because she was afraid they'd be the only offer. But when it came to offer time the neuropsychology dream placement came through with an offer. 
+
+Lisa called the first people and said she was taking the dream placement. Everyone at her school was super fucking pissed at her for backing out of the first agreement. They said it sullied the reputation of the institution. But Lisa recognized that was complete bullshit given that they first group were trying to cheat and pressure her. So she held firm and told everyone to fuck off. 
+
+She really got a lot out of the internship and met wonderful people there. The drive was 1 hour from the place she lived in Pasadena though... and accepting that internship probably made it much easier for her to land her VA job (which is very very competitive. VA Psychologists are very well remunerated to compare the average)

@@ -1,0 +1,3 @@
+One summer afternoon when we were first dating I got the bright idea to go to Outback Steakhouse to have a blooming onion and a beer. We didn't really ever go to chain restaurants. But I decided we needed to go so we jumped in the car and went. 
+
+We got a bloomin onion and beers and just sat there in the bar area. The onion was terrible, greasy as hell. The beer was good. I think we both had a real ball doing this just for the novelty of it. I think I spent most of the time there talking about how great it would be to bring her parents there for a taste of home (they are Aussies, but they happen to be vegetarians). I just thought the idea of bringing them there was so fucking funny.  

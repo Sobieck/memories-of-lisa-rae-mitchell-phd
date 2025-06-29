@@ -1,0 +1,3 @@
+While in Orlando for a conference, Lisa had really good coffee every morning at the Peabody. She would just rave about it. I didn’t drink coffee then. Still don’t really. 
+
+So I wanted to make her as happy as she was then. So I got a chemex and learned how to make very decent coffee. I was very exact about the water temp. I’d grind beans. And then make a cup for her. I’d bring it up to her and she’d have it first thing in the morning every morning to wake her up. She was so delighted by it and would drink it in bed. 

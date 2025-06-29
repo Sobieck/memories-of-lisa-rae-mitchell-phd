@@ -1,0 +1,3 @@
+One of only 2 times we ever talked about divorce was when we were at a conference for psychology in Orlando. She was dissatisfied that I hadn’t really figured out what I was doing with life yet. 
+
+We were at a fancy steak restaurant in the Peabody where we were staying. She was just frustrated with me. I don’t really remember the whole conversation just that divorce was mentioned. It’s all water under the bridge years ago.
