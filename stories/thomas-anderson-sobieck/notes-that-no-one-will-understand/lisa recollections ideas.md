@@ -1,3 +1,5 @@
+Buttered your biscuit / sauces - for covering feet with blankets, toothpaste, etc whereas sauce was anything liquid. Her medication for her foot wounds/ mouthwashes/ etc
+
 Going to fly over, she was in a jump suit that I bought her. I met her after work and the food was lovely and it was a fun night.
 
 Going to Black southern food place, honey ice cream that she stole
