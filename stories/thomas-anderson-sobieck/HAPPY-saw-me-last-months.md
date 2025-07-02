@@ -1,0 +1,3 @@
+For about six months in the past year Lisa was not walking around looking at things in the house. She'd just stay in her little area and look at a single point. But since her parents moved here she started to do a bit more. She was walking into the den and playing with Gidget with her eyes open. She was looking out the bay window at the trees in the back yard. So it was great to be able to see her. 
+
+But every time she'd look at me I'd scowl or frown at her at first and she'd say "stop scowling at me" or some such and I would laugh and smile at her. 
