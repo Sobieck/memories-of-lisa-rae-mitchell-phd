@@ -2,7 +2,7 @@ https://github.com/Sobieck/memories-of-lisa-rae-mitchell-phd/blob/main/pictures/
 
 https://github.com/Sobieck/memories-of-lisa-rae-mitchell-phd/blob/main/pictures/thomas-anderson-sobieck/2012/WP_000187%20(2).jpg
 
-https://github.com/Sobieck/memories-of-lisa-rae-mitchell-phd/blob/main/pictures/thomas-anderson-sobieck/2012/WP_000177%20(1).jpg
+![alt text](https://github.com/Sobieck/memories-of-lisa-rae-mitchell-phd/blob/main/pictures/thomas-anderson-sobieck/2012/WP_000177%20(1).jpg?raw=true)
 
 Honestly can't remember much of it. She was still working. It was fun. 
 
