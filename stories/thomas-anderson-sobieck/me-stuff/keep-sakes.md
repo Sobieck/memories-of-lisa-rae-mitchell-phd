@@ -22,5 +22,20 @@ Recipe rating folder: We'd rate each others cooking on a 1-10 and save the recip
 
 Pop up card: I used to get her these greatings cards that were pop ups. I'd just give them to her randomly when she was feeling not well. The one I have here is one I apparently didn't even write in but I addressed it to "LUB" in my terrible handwriting. 
 
-Lisa liked her buddha statues. I got two of them. One is normal and the other is of an elephant. 
+Lisa liked her buddha statues. I got two of them. One is normal and the other is of an elephant.
 
+Lisa’s phone with tape on it. She’d use it to call me all the time to help her in the last years of her life. It has tape on it so the screen wouldn’t hurt her. 
+
+Graduation picture with ray and Robyn. I took this picture. It is when we were first dating and the first time I met her parents. 
+
+Lisa Gidget and me picture from after the second room stay and before the last terrible period of her life. 
+
+Picture of her grandparents 
+
+Business card holder I think she bought me at poppy when we were first dating. It is nice wood and well made. I think it might have been one of the first gifts she gave me
+
+One of the last cards she wrote me. We used to give each other greeting cards a lot. This one addresses me as lovey and it has a chih on it. It is from 2020 and it is lamenting that we can’t do something special for my birthday. 
+
+And apron with cupcakes on it. She was wearing this one night when I got home from work with nothing but it on and high heels I think while cooking dinner. This was unusual to say the least and I just turned around and walked back outside. We did what one does in a situation like that when I came back in (ate dinner like normal and not have sex)
+
+Goddess statue: pink fat goddess statue. I’m vaguely recalling her having this before we met. But I don’t know it’s provenance

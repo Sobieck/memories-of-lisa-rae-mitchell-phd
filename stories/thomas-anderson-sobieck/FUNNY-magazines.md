@@ -1,0 +1,5 @@
+Lisa loved to look at magazines. She liked to see how styles changed over time. She loved looking at homey decor. She loved buying shit from catalogs to make her place more cozy. 
+
+In 2020 looking at magazines was one of her her main hobbies. Sometime around 2020-21 she stopped being able to look at paper because the contrasts of colors and text on white was just too much for her. It would cause her pain. So from then on I started to keep the magazines that would come to the house for her. We have boxes and boxes of unread magazines from this time because she never managed to look at them again. 
+
+About a month ago, I had some magazines out on some surface and Robyn was cleaning and asked us if we needed them. I, of course, said please just throw them away. But Lisa insisted that we keep them for her. So I put them in a box and put them on the boxes of magazines. I think she probably had 1000 magazines that we are throwing away. I don't think she really understood the scale and why I wanted to throw things away. She just wanted to not miss a thing.
