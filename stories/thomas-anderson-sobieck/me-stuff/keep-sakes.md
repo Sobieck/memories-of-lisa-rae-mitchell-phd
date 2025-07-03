@@ -39,3 +39,19 @@ One of the last cards she wrote me. We used to give each other greeting cards a 
 And apron with cupcakes on it. She was wearing this one night when I got home from work with nothing but it on and high heels I think while cooking dinner. This was unusual to say the least and I just turned around and walked back outside. We did what one does in a situation like that when I came back in (ate dinner like normal and not have sex)
 
 Goddess statue: pink fat goddess statue. I’m vaguely recalling her having this before we met. But I don’t know it’s provenance
+
+Brown leather journal: Lisa got it for me? We recorded her symptoms in it at some point 
+
+2018-2019 planners: Lisa recorded her life in these. She would write about all the things she was doing and whatnot. She loved them. We got them at Office Depot one day. I think we had a fight that day about something minor. But we went into Office Depot and found this type for her that worked with all her limitations. 
+
+Lisa’s and my boggle pads: has her handwriting on it
+
+Bluetooth remote: she used this to control the volume of her tv shows on an iPad when she was doing that in 2021-22. She would increase the volume back and forth to try to avoid a headache. 
+
+Pulse oximeter: for a few years Lisa’s heartbeat would go wild and she would have all sort of anxiety about it. We had the oximeter to show her that she was in normal range and her o2 was good. 
+
+Sushi rolling pad: when I first met Lisa she loved making veggie sushi. She made it all the time for me. She also made me lots of bean tacos with hard shells that she fried herself. 
+
+Popper: part of English tradition is to use these poppers on Christmas. They have little hats in them and Lisa loved them. 
+
+Picture of Lisa and her friends when she was very young.

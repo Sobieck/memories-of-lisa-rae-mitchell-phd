@@ -1,3 +1,5 @@
+Talking about her trip to Malta
+
 Buttered your biscuit / sauces - for covering feet with blankets, toothpaste, etc whereas sauce was anything liquid. Her medication for her foot wounds/ mouthwashes/ etc
 
 Making Lisa's playlist. She sat and we talked about all the music. She eventually had to stop after a couple days because the emotions were making her head tingle and then hurt :(
