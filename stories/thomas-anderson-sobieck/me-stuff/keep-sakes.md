@@ -55,3 +55,27 @@ Sushi rolling pad: when I first met Lisa she loved making veggie sushi. She made
 Popper: part of English tradition is to use these poppers on Christmas. They have little hats in them and Lisa loved them. 
 
 Picture of Lisa and her friends when she was very young.
+
+Letters I wrote to her in 2008 when we were first dating. 
+
+A letter a patient wrote Lisa thanking her for saving his life 
+
+Wedding certificate
+
+Program for her PhD graduation. I flew out to Pasadena with her and met her parents very early in our relationship. It was good. I liked her parents a lot. 
+
+A cloth mask she wore in 2014-15? When outside. She had bad allergies which was just the start of her sensitivities 
+
+Dog outfit. Both of our dogs hated being dressed up. I’m saving an elephant outfit that we put on them. We’d both get a kick out of it. 
+
+Jeff Buckley vinyl. She loved Grace and bought the vinyl before we met. We never had a record player 
+
+Elephant glove: a few years ago Lisa was extremely overheated and let the temp in our house fall to the 60s and 50s. After she went to the hospital for her leg wounds we got her all wrapped up and part of that was getting her gloves. I bought her these elephant gloves. 
+
+Her little baby Australian passports and he VA id. And her little baby green card with her fingerprints 
+
+The last thing she signed for me. A membership agreement to Hope neurology 
+
+The daily stoic. We would read this every day before I went to work in 2018-19. We’d talk about it and drink a nice tea and have cookies.
+
+The zune I got her very early in our relationship and loaded with music for her. She would listen to it at work. I remember going in on weekends so she could finish her notes and we’d listen to the zunes music.
