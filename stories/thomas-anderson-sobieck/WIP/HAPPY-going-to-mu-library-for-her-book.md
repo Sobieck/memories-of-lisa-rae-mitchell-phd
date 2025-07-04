@@ -1,0 +1,1 @@
+I drove, she had a hard time navigating the campus, but I remember being very happy to help her find research for her book.

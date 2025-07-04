@@ -1,0 +1,5 @@
+When I was working at midway before she got really bad we'd eat meals while watching Jon Stewart. She'd have meals ready for me when I got home and we would watch that and laugh and just spend the rest of the night laying on the couch together and watching tv. Before bed we'd make some herbal teas and have it in Lisa's less fancy pots and tea cups that she was comfortable dish washing. 
+
+On weekends we'd have little tea parties with all the fancy tea sets. 
+
+![The image shows a dark brown wooden tray holding two teacups and saucers and a teapot. The teacups and saucers are white with a delicate floral pattern of pink roses and green leaves. The teapot is also white, with a similar floral design of pink cherry blossoms and branches. It has a silver lid. The teapot sits on a small, white, circular warmer. Underneath the tray is a dark brown surface of Lisa's dresser.](https://github.com/Sobieck/memories-of-lisa-rae-mitchell-phd/blob/main/pictures/thomas-anderson-sobieck/2015/20151106_185155.jpg?raw=true)

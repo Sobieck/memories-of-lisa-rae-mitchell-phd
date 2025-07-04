@@ -1,0 +1,1 @@
+for file in *.heic; do heif-convert $file ${file/%.heic/.jpg}; done

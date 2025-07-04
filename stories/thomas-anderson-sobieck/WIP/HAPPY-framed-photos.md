@@ -1,0 +1,1 @@
+In ~2019 Lisa started to buy tons of frames so that she could put pictures of all her friends and family out in the house. 

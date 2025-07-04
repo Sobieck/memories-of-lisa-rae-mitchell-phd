@@ -2,6 +2,8 @@ We flew out to Aus on Christmas eve for our honeymoon. The boarding crew learned
 
 We went to our Hotel which was on the beach. The very first thing we did was go out and sit on the beach in a fucking jet lagged daze. It was awful. But then we got a nice meal. Melbourne was great. I remember one pizza place were I ate pizza with Lisa and then decided I was going to eat a dozen oysters. 
 
+We'd go out to brekkie every morning to the various Cafes around the hotel and Lisa would get flat whites (something she was very excited about given her australian roots). I also remember her being excited to introduce me to an Australian salad sandwich at a random restaurant. 
+
 We went to a bunch of places that Tony Bourdain went to in his episode of No Reservations, they were pretty good. But the one that he liked the most was closed for that time of year (christmas and ny) which seems pretty odd, but I guess it is the height of summer there. 
 
 While in Melbourne we went to see the aquarium. That was the only aquarium visit of our marriage. But I specifically remember how we both loved looking at the penguins. 
