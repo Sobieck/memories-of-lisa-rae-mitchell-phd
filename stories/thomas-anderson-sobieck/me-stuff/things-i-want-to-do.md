@@ -16,7 +16,7 @@ play msft flight simulator and get ray playing it
 
 ## Travel
 
-Bike trip to chicago
+Bike trip/train to chicago
     Swim in Lake Michigan
     
     Go to the aquarium
