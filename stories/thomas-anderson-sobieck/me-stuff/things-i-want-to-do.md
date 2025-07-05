@@ -14,6 +14,8 @@ Play baldurs gate
 
 play msft flight simulator and get ray playing it
 
+See Dessa live
+
 ## Travel
 
 Bike trip/train to chicago
