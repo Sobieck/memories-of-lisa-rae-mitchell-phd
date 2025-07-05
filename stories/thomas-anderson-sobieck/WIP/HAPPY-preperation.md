@@ -1,0 +1,1 @@
+Lisa prepared for everything. Conversations, doctors apointements, etc
