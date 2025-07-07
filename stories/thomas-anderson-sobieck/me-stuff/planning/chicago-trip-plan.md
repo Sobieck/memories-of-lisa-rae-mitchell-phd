@@ -1,0 +1,8 @@
+LAP -> CHI
+
+1:30 minutes
+201-299 W Cleveland St, La Plata, MO 63549
+
+Tim and Kimberly: Beatrix in River North was our breakfast place. They have several locations across the city. We also enjoyed Ema in River North 
+
+Tim and Kimberly: Recommended the [Royal Sonesta](https://www.sonesta.com/royal-sonesta/il/chicago/royal-sonesta-chicago-downtown)
