@@ -1,0 +1,1 @@
+Lisa falling out with friend, explain, when Lisa was in the room a brother of these people killed himself. And even though she was suffering severely she wrote these people a very sweet letter about how much she loved him. We never heard back

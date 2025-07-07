@@ -1,0 +1,1 @@
+Lisa used to keep the dishes in the sink overnight and then do the dishes when I would cook. Drove me crazy

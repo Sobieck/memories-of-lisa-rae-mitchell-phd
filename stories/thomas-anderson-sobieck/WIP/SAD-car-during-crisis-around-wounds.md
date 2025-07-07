@@ -1,0 +1,1 @@
+Going in the car to the hospital was surprisingly easy but it became harder and harder. Her mood would take a nosedive when she realized that and we’d argue.
