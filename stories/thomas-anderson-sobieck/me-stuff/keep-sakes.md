@@ -79,3 +79,7 @@ The last thing she signed for me. A membership agreement to Hope neurology
 The daily stoic. We would read this every day before I went to work in 2018-19. We’d talk about it and drink a nice tea and have cookies.
 
 The zune I got her very early in our relationship and loaded with music for her. She would listen to it at work. I remember going in on weekends so she could finish her notes and we’d listen to the zunes music.
+
+Earplug: Lisa used to wear these with her night guard and face mask every night. She needed total silence and darkness to sleep. Gidget happened to love to eat the used ones and it was gross. 
+
+Little vase with yellow flowers: Lisa loved her vases and fake flowers
