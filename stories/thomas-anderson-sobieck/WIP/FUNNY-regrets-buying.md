@@ -1,0 +1,1 @@
+This is really funny. Lisa frequently had regrets about not buying something. Frequently cloths, which led to many purchases and then returns. 
