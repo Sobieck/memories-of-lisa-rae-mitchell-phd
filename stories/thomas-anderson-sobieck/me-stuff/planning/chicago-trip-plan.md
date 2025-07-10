@@ -19,8 +19,16 @@ https://chicago.eater.com/maps/best-takeout-restaurants-chicago
 
 
 
-Watching Parts Unknown Chicago. - 15minutes
+Watching Parts Unknown Chicago. - 33:30minutes
 
 Ale House - Old Town - 219 W. North Avenue - indoor dive bar
 
 Valois Hyde Park - Cafeteria indoor 
+
+Longmen and Eagle
+
+SZE CHUAN https://pos.chowbus.com/online-ordering/store/lao-sze-chuan-Chinatown/21378 Pork Dumplins and Chili Oil, Mapu Tofu, Fish Hotpot
+
+https://www.girlandthegoat.com/chicago
+
+Ricobene's - takeout
