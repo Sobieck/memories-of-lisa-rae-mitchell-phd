@@ -1,0 +1,1 @@
+The story is just that after we had sex we'd always give each other high fives and say good job. I think this was probably just my absurd humor but it was a funny little tradition that I think started really early in our relationship.
