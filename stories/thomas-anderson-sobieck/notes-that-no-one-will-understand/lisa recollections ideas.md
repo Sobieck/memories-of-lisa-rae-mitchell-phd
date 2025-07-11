@@ -1,15 +1,7 @@
-Talking about her trip to Malta
-
-Making Lisa's playlist. She sat and we talked about all the music. She eventually had to stop after a couple days because the emotions were making her head tingle and then hurt :(
-
 Going to fly over, she was in a jump suit that I bought her. I met her after work and the food was lovely and it was a fun night.
 
 Going to Black southern food place, honey ice cream that she stole
 
-Walking to queens park in the fucking heat in melbourne. She was in the wrong shoes for it :(. The aquarium in Melbourne. Eating at various place Tony Bourdain went. A lot of them were closed because of the holidays (Christmas and NY). 
-
-
-Travel to south carolina and georgia, trying to taper Paxil. Was sick as a dog a lot of the time.
 
 pooped herself
 
@@ -57,8 +49,6 @@ Mom making me angel food cake, negative
 Going to Chuckie Cheese on my first day of work. So happy! Find Photo
 
 Came downstairs for the first time and looked at the mess of our yard and was so upset, funny 
-
-Find that playlist lisa put together, explain - HAPPY
 
 just detail how i made her food. smoker in garage to bake, deli slicer, all fresh stuff, etc 
 
