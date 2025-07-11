@@ -1,0 +1,1 @@
+Lisa really wanted to go on a trip with me up the pacific coast highway. She wanted me to eat at The French Laundry since I had a mild obsession with Thomas Keller at one point. 
