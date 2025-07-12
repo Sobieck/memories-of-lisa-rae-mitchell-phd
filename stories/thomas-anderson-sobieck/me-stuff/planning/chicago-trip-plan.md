@@ -7,6 +7,8 @@ Tim and Kimberly: Beatrix in River North was our breakfast place. They have seve
 
 Tim and Kimberly: Recommended the [Royal Sonesta](https://www.sonesta.com/royal-sonesta/il/chicago/royal-sonesta-chicago-downtown)
 
+POSH store - kimberly and tim
+
 https://chicago.eater.com/maps/best-takeout-restaurants-chicago
 
 
