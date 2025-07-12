@@ -130,6 +130,10 @@ The Northman - Cider Riverfront
 
 Gaijin - https://www.timeout.com/chicago/restaurants/gaijin - Doesn't take patio reservations for 1. Looks good though so go try. 
 
+Formento's - West loop
+
+Taureaux Tavern, Bar and Brasserie
+
 BOURDAIN - 
 
 Publican https://oneoffhospitality.orderexperience.net/65b06fc1f201e5346d0f8ce5/menu - dog friendly
