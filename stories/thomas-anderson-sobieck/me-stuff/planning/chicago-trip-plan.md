@@ -18,9 +18,6 @@ HAYMARKET MARYRS MEMORIAL - END OF BLUE LINE
 
 
 
-
-
-
 Watching Parts Unknown Chicago.
 
 Ale House - Old Town - 219 W. North Avenue - indoor dive bar
@@ -49,11 +46,6 @@ CALUMET FISHERIES  SMOKED FISH SMELT!
 
 BLACKBIRD
 
-Publican https://oneoffhospitality.orderexperience.net/65b06fc1f201e5346d0f8ce5/menu
-
-AVEC https://oneoffhospitality.orderexperience.net/65b06e8e4f8fa18167069e52/menu
-
-
 --
 
 SMYTH - The loyalist - 3 star - https://www.trycaviar.com/store/smyth---the-loyalist-chicago-1071353
@@ -73,7 +65,6 @@ Gilt Bar - https://giltbar.order.online/store/gilt-bar-chicago-891084/?hideModal
 
 PURPLE PIG - https://thepurplepigchicago.dine.online/locations/4238848?fulfillment=pickup
 
-
 OUTDOOR AND CLOSE, NO TAKEOUT - PERILLA - https://www.perillachicago.com/perilla-fare-overview/#bar-fare
 
 TRAIN
@@ -86,9 +77,6 @@ PLEASANT HOUSE - https://pleasanthousepub.com/
 
 Mama Delia -  https://order.online/store/mama-delia-chicago-27735134/?hideModal=true&pickup=true&rwg_token=ACgRB3e76hqJ2jWXBT2nuCK7lCkjG_mZBD87p2ysRN-sRmmmAE-0vS9YUsLJWvLRaapAuULx8d8ITegpjM2neWYXvz-DuOpiVA==
 
-Mott Street - https://order.toasttab.com/online/mott-street-1401-n-ashland-ave
-
-Tortello - https://order.toasttab.com/online/tortello-1746-west-division
 
 The Duck Inn - https://order.toasttab.com/online/the-duck-inn-chicago
 
@@ -119,3 +107,41 @@ Boonie's - Filipino - https://order.toasttab.com/online/boonie-foods-4337-north-
 KieGolLanee - https://order.toasttab.com/online/kie-gol-lanee-5004-n-sheridan-rd
 
 Sol de Mexico - https://tmt.spotapps.co/ordering-menu?spot_id=24130&accordion=true&images=yes&callback_url=http%3A%2F%2Fsoldemexicochicago.com%2F
+
+
+EATER 
+
+TRAIN 
+
+KAMA - https://order.kamabistro.com/order/kama-bistro
+
+DOG FRIENDLY -https://chicago.eater.com/maps/dog-friendly-chicago-bars-restaurants
+
+BARRIO - Dog menu.
+
+
+DOG FRIENDLY 
+
+https://www.timeout.com/chicago/restaurants/dog-friendly-patios-in-chicago
+
+CLOSE
+
+The Northman - Cider Riverfront 
+
+Gaijin - https://www.timeout.com/chicago/restaurants/gaijin - Doesn't take patio reservations for 1. Looks good though so go try. 
+
+BOURDAIN - 
+
+Publican https://oneoffhospitality.orderexperience.net/65b06fc1f201e5346d0f8ce5/menu - dog friendly
+
+AVEC https://oneoffhospitality.orderexperience.net/65b06e8e4f8fa18167069e52/menu - dog friendly
+
+
+TRAIN - MICHILAN 
+
+Mott Street - https://order.toasttab.com/online/mott-street-1401-n-ashland-ave - DOG FRIENDLY
+
+Tortello - https://order.toasttab.com/online/tortello-1746-west-division - DOG FRIENDLY
+
+
+
