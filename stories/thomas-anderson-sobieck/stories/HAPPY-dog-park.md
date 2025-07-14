@@ -1,0 +1,7 @@
+I don't remember when this happened, but I suspect it came during the halcyon days before I started working again and after Lisa got out of the dark room for the second time. 
+
+During this period of time we were looking for activities to do. Lisa had a real zest for life at that time. She wanted to make up for lost time so we did a lot, even when I was pushing her to cool it due to her health. So she found an announcement in one of the local magazines that we get sent about a dog festival thing in the park on the other side of the valley from us. We decided to go see what it was about.
+
+Lisa, Gidget, and I took a walk to it. It was a long long walk to that park. Much more than Lisa could handle. It didn't seem like it would be because during this time we would frequently go down the hill and walk the trail. But this was maybe another mile to get around the pond to where the gathering was happening. Honestly, I should have probably left her there and then picked her up in the car at the park.
+
+The memory is only something that comes to mind because it was just so wonderful spending time with her and the dog. We weren't care free, I'm sure I was nervous as hell doing something new with her health the way it was. And the actual festival was a bit of a letdown because Gidget hates other dogs so she didn't want to socialize. But just spending time with her like that was the best. 

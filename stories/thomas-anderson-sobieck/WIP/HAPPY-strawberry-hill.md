@@ -1,1 +1,0 @@
-Taking Gidget to strawberry hill that one day when Lisa was feeling down and letting Gidget run wild

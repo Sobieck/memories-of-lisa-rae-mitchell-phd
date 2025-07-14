@@ -1,0 +1,7 @@
+At my last job I had a lot of freedom to do what I wanted. They gave me the freedom to leave in the middle of the day if I needed to. On one autumn day Lisa was a little down. She'd been spending a lot of time outside, which she normally loved, but she just needed to get away from the house. She came into my office and asked if I wanted to go to strawberry hill, a nice local plant nursery in the country. Lisa was wanting to get more fancy pumpkins for her various fall displays. I immediately agreed. 
+
+We left right away, and of course we brought Gidget dog. We got there after a nice drive through the winding roads and no one was there beside the employees. We asked if Gidget was allowed and they said yes and told us she didn't even need a leash. So we let her roam.
+
+Gidget fucking loved this. She just ran and ran and ran. At one point another group of people showed up with a small kid. I think the kid was probably 5 or 6. I was a bit nervous about this because Gidget dog was very poorly socialized. She spent pretty much all of her life cooped up in this house with Lisa and I. But she was really good around the kid. They even played together.
+
+I think this was one of Lisa's absolutely favorite memories. During the last five years of her life she would bring it up every few months. It was just such a wonderful day. 

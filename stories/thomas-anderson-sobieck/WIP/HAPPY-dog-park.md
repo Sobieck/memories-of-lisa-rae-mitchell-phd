@@ -1,1 +1,0 @@
-Walked to park for dog fair. Overdid it
