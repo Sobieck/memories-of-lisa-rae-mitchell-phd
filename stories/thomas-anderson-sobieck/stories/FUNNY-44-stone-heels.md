@@ -1,0 +1,5 @@
+This probably happened in 2018. It was during one of the happy interregnum between Lisa's flares. These periods of time will probably always be my most cherished memories because we'd made it through some shit that most people can't imagine and we still had each other.
+
+But the story is pretty simple. We were headed out to a gastropub, 44 stone, for dinner. We really like that place. Lisa probably got fish and chips or something. I would have got the brussels sprouts for sure and maybe a half chicken. I would have drank a cold cider. 
+
+But Lisa liked to dress up. So she got dressed in a nice dress or something with pretty big heels. I told her she should probably not wear the heels because she was going to hurt herself. She said that wasn't likely. So we went to the pub and walking to our table she fell over! We laughed and laughed and laughed about it. The place had some pretty slick floors. 

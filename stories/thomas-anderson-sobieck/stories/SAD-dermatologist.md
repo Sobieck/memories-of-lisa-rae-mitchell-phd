@@ -1,0 +1,5 @@
+The last time Lisa left the house was last summer/autumn. She had some spots on her face that she was concerned about so we went to her new dermatologist. She'd seen him once before and loved him. He was recommended by her old derm who we both just loved. 
+
+The first thing she did was to beg him for him to make a house call and he agreed. But he took off her hat without her permission and I think that broke her trust in him. He said he couldn't do anything for her because her face was too dirty. She hadn't bathed in probably 9 months at that time. He gave her some cleanser and then told her he would come to the house to follow up.
+
+She was very jittery after that trip. She didn't have much faith in medicine, but this just broke it a little more. It just cost her so much to see these people and they treated her so cruelly. 
