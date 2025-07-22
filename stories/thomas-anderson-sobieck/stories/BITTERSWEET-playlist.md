@@ -1,0 +1,5 @@
+Sometime in the 2018-20 time frame Lisa wanted to make a [playlist](https://github.com/Sobieck/memories-of-lisa-rae-mitchell-phd/blob/main/lisas%20documents/lisa%20made%20playlist%20for%20mary.md) of all her favorite music to share with her friends. So she sat down in the sun room and asked me to find music that she loved. She hadn't listened to music in a long time at that point. 
+
+So we just sat together listening to music and she was so happy. Telling me all the stories that the music made her remember. I remember he specifically telling me about loving to drive the roads around Ukiah listening to Janis Joplin and System of a Down doing her social work job. 
+
+We did this for a few days. But eventually her head started to tingle with the emotions that the songs would bring up and this would end up causing head pain. So that was the end of that :(.

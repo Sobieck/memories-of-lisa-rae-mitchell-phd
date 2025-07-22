@@ -1,1 +1,0 @@
-Making Lisa's playlist. She sat and we talked about all the music. She eventually had to stop after a couple days because the emotions were making her head tingle and then hurt :(
