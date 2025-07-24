@@ -5,3 +5,5 @@ I brought over some home made chicken soup. I think I used a rotisserie chicken 
 She raved about how good the soup was, and would always talk about it for the rest of her life. Basically every chicken soup she had for the rest of her life didn't measure up to that bowl. 
 
 It is also funny that me taking care of her was so foundational to our early relationship. I never would have guessed that I would spend years trying to help her feel better. I wish that the chicken soup episode hadn't been foreshadowing. It would have been nice to have a long normal life with her. I miss her.
+
+I just remembered that after that date I closed the door and I danced and jumped around in circles going to my car. 
