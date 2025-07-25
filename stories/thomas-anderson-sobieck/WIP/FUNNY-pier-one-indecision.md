@@ -1,1 +1,0 @@
-Pier one: getting nice cabinet, Lisa not wanting it anymore, getting different one, Thomas has to do everything by himself
