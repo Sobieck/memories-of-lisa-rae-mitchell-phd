@@ -7,3 +7,5 @@ Another one that I was always using was "sauce." At the end of her life Lisa had
 Another one was "butter your biscuit." It referred primarily to putting toothpaste on her tooth brush at night but I think that we also used it about putting on her various creams. I know we used it for her skin moisturizer. I had to cover her feet with blankets a few times a day and that was referred to as buttering her biscuit as well. 
 
 Another idiosyncratic thing we did was pluralize already plural words. "I'm going to wash your feets" and "Are you brushing your teeths today" are examples.
+
+One of the things I used to tell Lisa was that she was the best (she was). She'd say "no you are the best". And we'd go on like that until we decided that we should have been called the Bests. 

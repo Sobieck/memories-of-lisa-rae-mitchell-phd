@@ -1,0 +1,5 @@
+When I was working remote, Lisa would bring me in a big plate of fruit and a big salad every day for me to eat while working. It was really nice. The salads had fancy olives on them and the fruit varied with seasons. We'd have mangos, papaya (gidget fucking loves papaya), apples, pears, berries, etc etc. 
+
+She started struggling with this. Her pain was getting worse and the chopping and everything was getting to her. So I told her to go outside and I would get her the fruit, but I said I wouldn't get myself any. This was to incentivize her to get back to making both of us our plates. So I took a little time out of my day, from then on, to make her fruit. In the moment I thought for sure that she would be back to it in a week or whatever. But that was the last time she made me fruit. 
+
+About six months ago I started eating fruit again. I felt _bad_ doing it. Because it was implicitly giving up on Lisa doing it again for me anytime soon (which was obvious given how she was doing). But I wonder how much of that played into her decision. I tried to be positive with her but I also planned my life around the idea that I would be taking care of her forever. 
