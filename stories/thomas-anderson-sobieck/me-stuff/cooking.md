@@ -4,6 +4,7 @@ tabbouleh - The complete vegetarian cookbook - pg 182
 
 lentil and lemon soup. 2x next time. Add nice lettuce greens again. - Tassajara Cookbook 298
 
+Pearl Couscous with Caramelized Fennel and Spinach - 187 complete vegetarian
 
 ### Very Good
 
@@ -30,5 +31,3 @@ French Toast
 
 
 
-
-Pearl Couscous with Caramelized Fennel and Spinach - 187 complete vegetarian
