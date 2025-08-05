@@ -83,3 +83,15 @@ The zune I got her very early in our relationship and loaded with music for her.
 Earplug: Lisa used to wear these with her night guard and face mask every night. She needed total silence and darkness to sleep. Gidget happened to love to eat the used ones and it was gross. 
 
 Little vase with yellow flowers: Lisa loved her vases and fake flowers
+
+Lisa’s PhD diploma: she got this the same week I met her folks 
+
+Framed picture of Lisa and I at Mackanaui Island 
+
+Blue knit sweater from her grandma 
+
+The living will we made for her in 2023. 
+
+The pink dog mom bumper magnet she had in the back of her CRV
+
+And the Sheldrick Wildlife Trust hat her parents gave her for a holiday that Lisa wore all over the place.
