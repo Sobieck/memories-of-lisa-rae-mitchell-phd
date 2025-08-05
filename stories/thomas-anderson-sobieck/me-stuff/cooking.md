@@ -1,3 +1,7 @@
+### Outstanding
+
+Chickpea and Spinach Soup - Tassajara Cookbook 304
+
 ### Excellent
 
 tabbouleh - The complete vegetarian cookbook - pg 182
