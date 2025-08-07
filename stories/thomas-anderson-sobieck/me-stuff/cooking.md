@@ -8,6 +8,8 @@ tabbouleh - The complete vegetarian cookbook - pg 182
 
 lentil and lemon soup. 2x next time. Add nice lettuce greens again. - Tassajara Cookbook 298
 
+Firm tofu dipped in panko and drizzled with sesame seed oil - 400 degrees for 8 minutes - serve with green onion and peanut sauce 
+
 ### Very Good
 
 Pearl Couscous with Caramelized Fennel and Spinach - 187 complete vegetarian
