@@ -95,3 +95,5 @@ The living will we made for her in 2023.
 The pink dog mom bumper magnet she had in the back of her CRV
 
 And the Sheldrick Wildlife Trust hat her parents gave her for a holiday that Lisa wore all over the place.
+
+a chrismas label that says to: lovey from: nub
