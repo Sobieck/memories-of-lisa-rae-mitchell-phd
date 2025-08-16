@@ -1,0 +1,1 @@
+Looking for hats for the derby party. Dillards, TJ MAX, Tuesday Morning, etc etc. Not many places had any hats but it was really fun driving around the city looking for one. She ended up being one of the few people with a hat

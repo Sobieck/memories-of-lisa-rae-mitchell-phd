@@ -1,0 +1,1 @@
+Running after a rain storm. Hearing the water come down the hills. Taking Lisa to MLK Jr park so she could hear it

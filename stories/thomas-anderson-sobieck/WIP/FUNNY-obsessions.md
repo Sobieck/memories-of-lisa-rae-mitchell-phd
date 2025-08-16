@@ -1,0 +1,1 @@
+Editing hosts file to keep Lisa from obsessing over cloths

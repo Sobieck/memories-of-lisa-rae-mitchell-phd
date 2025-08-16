@@ -1,0 +1,1 @@
+Lisa’s wound changes. Screaming at first. Becoming old hat. Never left. Got much smaller after she started her benzo. Was so hopeful
