@@ -1,1 +1,0 @@
-Lisa makes the best tamales and mole sauce. I LOVE THEM. She gives them away.
