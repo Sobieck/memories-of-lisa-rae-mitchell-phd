@@ -1,0 +1,1 @@
+Showering routine when she was ill

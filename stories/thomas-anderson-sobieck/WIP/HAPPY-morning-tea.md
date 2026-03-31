@@ -1,0 +1,1 @@
+We'd have morning tea while I was working at ritter.

@@ -1,0 +1,1 @@
+Going to all the furniture stores with Lisa on my birthday to find a TV stand. We ended up with a dresser to put the tv on that is a light green. It was so nice.

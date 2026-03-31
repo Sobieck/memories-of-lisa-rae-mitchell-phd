@@ -1,0 +1,1 @@
+Planned on flting to the Langham in Chicago for tea

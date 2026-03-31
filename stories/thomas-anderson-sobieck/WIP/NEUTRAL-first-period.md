@@ -1,0 +1,1 @@
+Lisa's first period while in German. Bled all over a nice German couples sheets. Horrifying for her.

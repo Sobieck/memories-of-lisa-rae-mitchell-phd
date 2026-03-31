@@ -1,0 +1,1 @@
+First together. Going to USBANK to get our joint bank account. 

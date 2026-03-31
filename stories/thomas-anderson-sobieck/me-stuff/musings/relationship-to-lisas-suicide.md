@@ -1,0 +1,3 @@
+I wrote this privately a month or so after Lisa's death
+
+I think my relationship to Lisa's suicide is different than a lot of people's reaction to their loved one killing themselves. I desperately want her to be here still with me, but her decision to end her life doesn't seem mysterious to me. The level of pain that she's been in for 10 years was just completely unacceptable and she decided she had had enough. I can understand that. But fuck do I wish she would have waited to see if we were actually onto something with the two doctors that were giving it a try.

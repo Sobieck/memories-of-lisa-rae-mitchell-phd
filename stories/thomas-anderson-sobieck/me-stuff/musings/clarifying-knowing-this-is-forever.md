@@ -1,0 +1,3 @@
+I wrote this to a friend a couple months after Lisa's death
+
+I understand that feeling very well. I was doing the hardest thing I'd ever done taking care of Lisa, and trying to do it while trying to be cheerful with her. And I knew I could do it until I died. I figured it would probably kill me eventually, but knowing with a certainty that this was my life for the next 40 years was something I came to terms with. Thankfully it very gradual realization. But just accepting that this was lifelong and I couldn't do much to change it was strangely comforting to me. It clarified things in a way that helped.

@@ -1,0 +1,1 @@
+My watch turning on and hurting her when she was first sick. Sitting in the dark room upstairs looking out at Columbia

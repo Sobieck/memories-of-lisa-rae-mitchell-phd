@@ -1,0 +1,1 @@
+After coming out of the room I bought a massage table so that I could give her massages every day to help with her muscle issues. 
