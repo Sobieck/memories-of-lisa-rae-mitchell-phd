@@ -1,0 +1,7 @@
+I have been sick for over ten years with symptoms that have accumulated and worsened over time. I’m totally disabled and my husband has had to quit his job to care for me. A year ago a new neurologist who has a reputation as an excellent diagnostician said after meeting me said I likely had MCAS. He ruled the conditional out when my tryptase labels came back normal. However, from what I’ve read tryptase is not a reliable measure, especially since I was not a flare at the time. 
+
+He continued to believe I have some sort of immune disfunction causing causing multisystem symptoms. He Rxed cromolyn sodium, upped my Zyrtec, and told me to take an h2 blocker. The cromolyn triggered a severe flare in my migraines and other symptoms so I discontinued the medication. From what I’ve read this is common with MCAS and so I asked my physician is I should try at a lower dose. He said “why would you do that when it made you so sick.” 
+
+From what I’ve read about MCAS it seems to explain all of my symptoms and I am interested in being assessed by an MCAS specialist to determine if I have the condition. I’ve included my list of symptoms and some of my records that I thought seemed most pertinent. I am happy to send you all of my records and my history if you are interested. I did not want to inundate you with information so I didn’t send everything. Please consider working with me. 
+
+Lisa R. Mitchell, PhD 
