@@ -1,0 +1,3 @@
+When Lisa could drive herself to the VA for work Zoe dog and I would sit on the porch swing and wait for her when the weather was nice. Lisa would pull into the driveway and Zoe would sprint up the hill and Lisa would open her door and Zoe would give her kisses. They would both then drive down into the garage. 
+
+That porch swing was Lisa's favorite. She'd sit out there when she was sick and just enjoy the sights and sounds of the yard. I think that was probably where she was most happy in the last 7 or so years of her life. 
