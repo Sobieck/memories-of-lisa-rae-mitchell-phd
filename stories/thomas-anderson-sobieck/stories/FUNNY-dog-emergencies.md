@@ -1,0 +1,5 @@
+Gidget got into some shit the first few months we had her. This was in the sweet spot where Lisa was too sick to work but she could still enjoy life a bit. Within a year of getting Gidget, Lisa was in a much worse spot health wise. 
+
+But Lisa used to put snacks out for me. I lack self control around sweets, which means I simply do not keep them in the house. But Lisa would buy some and put a few in the dish for me every day so I could have a little treat. So on this particular day Lisa set some chocolate covered caramels out on a plate on an end table that was next to the couch. Gidget, the bad dog that she is, jumped up and ate them. We called the vet and they did the calculations and said that she would be fine. 
+
+Another Gidget stress related thing. One morning Lisa couldn't find her paxil. She thought that maybe Gidget ate it. So I ran Gidget over to the emergency vet to have her tummy pumped. But right before we went into the vet Lisa called and said she'd found the pill on the ground. 

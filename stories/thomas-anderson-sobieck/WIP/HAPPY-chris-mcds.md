@@ -1,1 +1,0 @@
-Biking over to Chris McDs and having champagne and pork shank
